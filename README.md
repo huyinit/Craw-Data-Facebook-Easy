@@ -1,5 +1,6 @@
 # Craw-Data-Facebook-Easy
-Lên youtube của mình để xem hướng dẫn cách chạy nhé mọi người :
+Lên youtube của mình để xem hướng dẫn cách chạy nhé mọi người :(**EXPLAIN**)
+https://www.youtube.com/watch?v=0GtHkaZ1_iY
 
 
 Follow and Contact me on :
